@@ -38,7 +38,10 @@ Pizza! Pizza!
  * veggie w/sausage and bananna peppers no jalepenos or pineapple
  
 
-* @ charlekwallin
+* @ charlekwallin :pizza:
+ * Anchovies
+ * Sardines
+ * Puffin
 
 
  
