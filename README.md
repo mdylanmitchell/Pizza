@@ -32,8 +32,11 @@ Pizza! Pizza!
 
  
 
-* @ Jaquantae :helicopter:
-  * I like pizza in a helicopter
+* @ Jaquantae :yum:
+  * Meat lovers
+  * Bacon
+  * Pineapple
+  
 
  
 
