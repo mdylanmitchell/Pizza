@@ -27,8 +27,10 @@ Pizza! Pizza!
 
  
 
-* @ Jaquantae
-
+* @ Jaquantae :yum:
+* Meat lovers
+* Bacon
+* Pineapple
  
 
 * @ thomasanspach:jack_o_lantern:  
